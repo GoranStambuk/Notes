@@ -46,19 +46,19 @@ My dad has a small nose and green eyes, but from pictures I have when I was a to
 my aunt lived on 2nd floor of her house in the island of Vir, where we were visiting numerous times. Fact is, 2nd floor is unfinished and aunt
 always lived on 1st floor. 
 
-Btw the only way to detect an **** is by using a dog. This is why they are trying to make cats popular. Disguise wont fool dogs.
-But my dog didn't bark on my dad. It only barked at a single person in whole town. It did however ran away from my
-dad once, scared and hid near me in my room, so I suspect my dad is a shapeshifter. What is that person my dog barked on I don't know yet.
+Btw the only way to detect an **** is by using a dog. Disguise wont fool dogs.
+But my dog didn't bark on my dad. It only barked at a single person in whole town. It did however ran away from my dad once, scared and hid near me in my room, 
+so I suspect my dad is a shapeshifter. What is that person my dog barked on I don't know yet.
 
 It seems some kind of parasites that attack human mind exist. I got one when I was just a toddler, 40y ago, dunno how, and I think I have a new one now or more of them.
-I think the parasite is a bug, an insect, possible the same one found on pidgeons, and gays seem to be spreading them by raping people and puttint the bug into
-people ears. I beleive croatian tennis player, Goran Ivanišević also had or still has one, judging on his behaviour.
+I think the parasite is a bug, an insect, possibly the same one found on pidgeons, and gays seem to be spreading them by raping people and putting the bug into
+people ears. I beleive croatian tennis player, Goran Ivanišević also had or still has one, judging upon his behaviour.
 They also seem to change their host eye color to green, and increase their skull size when they reproduce.
 
 The mind parasites serve to tranquilise human host, block all agression, and make humans unable to defend themselves.
 In case you battle it and try to keep control, serious mental damage, clinical illness, is possible.
 It seems the connection parasites share to communicate with one another gives human host some sort of telepathic ability. 
-I can send something I imagined in my mind or said in my mind to some other person.
+I can send something I imagined in my mind or said in my mind to some other person and I beleive anyone that has the parasite can do the same.
 
 Basically the elites will make us techno slaves.
 You will have neuralink builtin or forced to quit your job, all your finances will be built into chips on your body. You will own nothing.
