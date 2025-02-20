@@ -1,6 +1,17 @@
 So, wtf is happening?
 
-Basically, aliens. XD
+Basically, I beleive there is something that grants us all a wish. Call it a God if you will. And everything happening today is a direct result of someones wish.
+Since first humans were created, everything we wished was made true. We weren't educated at first, so the wishes we made were dumb.
+For example, we thought that God grants everyone a wish at a time, so currently, god is doing exactly that.
+We thought God approaches you in your mind like a doctor, and you explain to yourself things, which then God makes true, and God made that approach true aswell.
+We wished for law and order, math and physics, and God made that true aswell.
+We wished God only fullfilled truthfull wishes, so God made that true aswell.
+We then thought aliens existed, that someone was stupid or a prostitute, that heaven and hell and afterlife existed and whatnot, and God made all of that true.
+So, who ever you are, you get a wish once in 8y, since God approaches everyone one at a time for a minute, and we are 8 billion.
+Everything happening in the world today is a result of someones wish. I am a prophet, Jesus reborn if you will, and it was also someones wish that I be exactly that.
+
+
+
 
 Some time, a bit over 100y ago, aliens came to our planet, and agreed to technologically boost us, in exchange of offering them a new home.
 Some aliens are shapeshifters, some are telepaths, some are controllers, etc. The telepaths influenced people to reach a conclusion or two,
@@ -137,4 +148,5 @@ I personally witnessed people bragging with guns on a Discord server, which was 
 So, Trump is thanking for protection to same people that organised attack on him.
 
 So why is all this happening, you ask? Well, imagine you owned trillion of $$$. What use do you have from rest of 8 billion people? Bots can do everything.
-All you need to be is be immortal. And guess what's AI's lifespan.
+All you need to be is be immortal. And guess what's AI's lifespan. To make matters even worse, hackers are trying to abuse this system to become some sort of demi gods.
+Hackers currently have ways to act a bacteria around your pc, be inside your mind, and influence you in any way they want.
